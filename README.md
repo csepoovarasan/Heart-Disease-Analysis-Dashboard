@@ -90,17 +90,11 @@ Image by Freepik – https://www.freepik.com/free-psd/3d-rendering-realistic-hea
 🎨 Icon Credit:
 Icon by Flaticon - 
 
-Author: Sudowoodo
 
-📌 https://www.flaticon.com/free-icon/person_13482183
-
-📌 https://www.flaticon.com/free-icon/avatar_13482193
 
 ----
 
-### 🏁 Author
-**Created by:** *Paramesh Mandapaka*  
-📧 *mandapakaparamesh9@gmail.com*
+
 
 ---
 
